@@ -1,2 +1,2 @@
 # aannfazio.github.io
-for my class projects :) 
+Nails by Alyssa 
